@@ -14,4 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-teste
+Sou militar do Exército (estou na reserva).
+Estou estudando para poder voltar ao mercado de trabalho, sinto que ainda posso trabalhar e contribuir com a sociedade de alguma forma.
+Meu planos são trabalhar com cloud ou análise de dados. Essas são as duas áreas que tenho estudado.
